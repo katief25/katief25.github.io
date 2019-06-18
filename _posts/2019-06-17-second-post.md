@@ -1,1 +1,5 @@
-hi
+---
+layout: post
+title: The Beginning
+---
+...
