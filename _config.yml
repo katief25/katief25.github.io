@@ -86,5 +86,5 @@ exclude:
   - README.md
   - CNAME
   
-theme: 
+theme: jekyll-theme-leap-day
   jekyll-theme-tactile
