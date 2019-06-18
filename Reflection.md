@@ -1,0 +1,1 @@
+To say that this course challenged me is an understatment. Just when I thought that I knew what I was doing and was on track, the next step or exercise always seemed to stump me. I've never taken a course with such a learning curve before, so this course constantly was challenging me to step up to the task at hand. 
