@@ -11,4 +11,4 @@ One report talks about a woman "whether civilized or savage" (Citation, ID67). A
 
 Another report from November 15, 1790, says "whether a wife may be cheap or dear at that price time will shew."(CITATION) Analyzing this one line in particular can show a lot about cultural values. First of all, the fact that a wife's value is discussed using words that we use when discussing prices of inanimate objects. It goes to show, that despite the fact that women are humans just as much as men are, the time period that this was written displays different perspectives. We have come a far way since then in terms of what we consider an appropriate way to talk about women, however this example was the way it was for a very long time and it was widely accepted. This was how it was, and it was okay.  
 
-                                                    ![](/images/phrase.png)  
+![](/images/phrase.png)  
