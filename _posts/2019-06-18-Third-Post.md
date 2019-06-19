@@ -2,4 +2,4 @@
 layout: post
 title: Introduction
 ---
-When thinking about the war, is what comes to mind first the records from the hospital? That's doubtful! However, I find this shocking because in a time of war, when so many individuals are being injured, would we not think the opposite? We can begin to see just how useful hospital records really are when looking back at the war. Here's a look at what was found. 
+These days, it is uncommon to find many people who keep up to date with the newspaper. For those of us that do, I think we would agree that the content doesn't tend to be very gendered. If anything, we have moved into a society and time that is so much more inclusive where everyone deserves equal respect. This was not always the case. In fact it was quite the opposite in the past. How and why, we will see, but come along and learn with me. 
